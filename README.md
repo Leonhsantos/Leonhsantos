@@ -4,7 +4,9 @@
  </div>
 
 🚀 Cursando Desenvolvimento Web
+
 💬 Contate-me no email: leon.henriqueantos@gmail.com
+
 😄 Pronomes: Ele/Dele
 
 
