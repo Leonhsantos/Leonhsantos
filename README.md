@@ -3,7 +3,7 @@
 
  </div>
 
-🚀 Cursando Desenvolvimento Web
+🚀 Cursando Analise e Desenvolvimento de Sistemas
 
 💬 Contate-me no email: leon.henriqueantos@gmail.com
 
